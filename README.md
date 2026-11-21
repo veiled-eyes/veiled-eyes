@@ -34,3 +34,30 @@
 <p align="right">
 <img width="536" height="536" alt="Không Có Tiêu Đề39" src="https://github.com/user-attachments/assets/ffd1b6f1-d1c0-4d59-b236-3dd02f4a0ecb" />
 
+<p align="center">
+╾────────╼
+
+<p align="center">
+<img width="736" height="740" alt="two time forsaken moodboard" src="https://github.com/user-attachments/assets/1be07eba-421f-4537-9874-bb038ed070fd" />
+
+<p align="center">
+╾─────────╼
+
+<p align="center">
+ME!!!! 
+
+<p align="center">
+╾────────╼
+
+<p align="center">
+<img width="734" height="442" alt="a3ea5b73-03ff-49e5-877b-c492d497c3f3" src="https://github.com/user-attachments/assets/28b2ac2a-6aa9-42d7-886c-df27543b41a5" />
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=23&duration=4100&pause=1000&color=FFFFFF&width=500&lines=PLEASE+DONT+LEAVE+ME+NIGHTSHADE+.+.+" alt="Typing SVG" /></a><div align="center">
+
+<p align="center">
+╾────🪽────╼
+
+<p align="center">
+<img width="498" height="286" alt="forsaken-twotime" src="https://github.com/user-attachments/assets/8709a0a9-dc94-4928-9747-76327f078166" />
+
+
