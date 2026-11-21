@@ -109,3 +109,8 @@ Shadow dies twice.
 <img width="935" height="735" alt="train train two time train train _ art by me" src="https://github.com/user-attachments/assets/5b64c873-3860-4265-8220-38dcc0a620e2" />
 
 **" Ill wait for you, my love. "**
+
+<p align="center">
+<img width="340" height="340" alt="snake-heart" src="https://github.com/user-attachments/assets/bd6c8804-b5cc-457c-b3a3-7e23a8fad58e" />
+
+>  healing. 
