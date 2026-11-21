@@ -60,4 +60,52 @@ ME!!!!
 <p align="center">
 <img width="498" height="286" alt="forsaken-twotime" src="https://github.com/user-attachments/assets/8709a0a9-dc94-4928-9747-76327f078166" />
 
+**Mostly on docks!**
 
+<p align="center">
++
+
+>  Not a Sp*wnist. . .
+
+<p align="center">
+<img width="548" height="348" alt="two-time-azure" src="https://github.com/user-attachments/assets/af4f7f2a-8160-4fe1-86aa-fb85bc8a2614" />
+
+*♡ Gosh, I love you so bad my heart explodes into a million of petals nightshade!*
+
+<p align="center">
+<img width="736" height="414" alt="₊⊹ ⌗ Azuretime fanart" src="https://github.com/user-attachments/assets/308efb3c-29c0-43cb-b04e-b4619b3430f2" />
+  
+**you were just a memory in me... what have I done to you,** *Azure?*
+
+<p align="center">
+<img width="298" height="298" alt="forsaken" src="https://github.com/user-attachments/assets/5f0bef9b-07e5-46a1-a64d-288a58836fff" />
+
+<p align="center">
+Glory to the Spawn!
+  
+>  no dont
+
+
+<p align="center">
+<img width="298" height="298" alt="FORSAKEN" src="https://github.com/user-attachments/assets/3d42c388-5118-47ea-91cf-8bae19d4e043" />
+
+
+<p align="center">
+Forgive my souls
+
+**" Ive sacrifice for Spawn, why can't I sacrifice someone else despite you? despite my loved person I've always seen them as my** *family? "*
+
+
+<p align="center">
+<img width="498" height="498" alt="two-time-twotime" src="https://github.com/user-attachments/assets/f0b024f5-a929-4b5e-8793-aa8d21193faa" />
+
+
+<p align="center">
+Shadow dies twice. 
+
+**" Oh Azure, Ive decorated your gravestone with flowers you loved so bad, please wake up, spawn tell us you'll face once I earned 2 lifes. why haven't you woke up for me?** *Azure?* **Did the spawn lies or are you... just playing? this is not funny, please** *Aspen.* **Wake up for me. "**
+
+<p align="left">
+<img width="935" height="735" alt="train train two time train train _ art by me" src="https://github.com/user-attachments/assets/5b64c873-3860-4265-8220-38dcc0a620e2" />
+
+**" Ill wait for you, my love. "**
